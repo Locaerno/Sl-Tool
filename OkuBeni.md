@@ -1,0 +1,1 @@
+Tool SL★ Tagına Ait Bir Tooldur.
